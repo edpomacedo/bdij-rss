@@ -1,5 +1,7 @@
 # bdij-rss
 
+![doi:10.5281/zenodo.10397801](https://zenodo.org/badge/DOI/10.5281/zenodo.10397801.svg)
+
 Ferramenta para compilação de notícias dos Tribunais que as publicam RSS.
 
 ## Estrutura
