@@ -1,0 +1,10 @@
+---
+title: "Doação do bem de família para filho não é fraude à execução fiscal"
+link: "https://www.stj.jus.br/sites/portalp/Paginas/Comunicacao/Noticias/2023/28112023-Doacao-do-bem-de-familia-para-filho-nao-e-fraude-a-execucao-fiscal.aspx"
+description: "Doação do bem de família para filho não é fraude à execução fiscal"
+pubdate: "Ter, nov 28 2023 07:00:00"
+---
+
+## Conteúdo
+
+​A Primeira Turma do Superior Tribunal de Justiça (STJ) reafirmou que a alienação do imóvel que sirva de residência para o devedor e sua família não afasta a impenhorabilidade do bem de família, motivo pelo qual não está caracterizada a fraude à execução fiscal.A Fazenda Nacional no agravo interno manejado contra decisão que deu provimento ao recurso especial do executado, alegava que o reconhecimento da fraude à execução fiscal afastaria a proteção do bem de família. De acordo com os autos, após ter sido citado na execução fiscal, o devedor transferiu o imóvel para o seu filho.O juízo de primeiro grau não admitiu a penhora do bem, mas o Tribunal Regional Federal da 2ª Região (TRF2) reformou a decisão por entender que a proteção da impenhorabilidade prevista na Lei 8.009/1990 não se justificaria quando o doador procura blindar seu patrimônio dentro da própria família, mediante a doação de seus bens para um descendente. Mesmo com alienação, imóvel continua protegido pela impenhorabilidadeO relator no STJ, ministro Gurgel de Faria – cuja decisão monocrática foi confirmada pela turma julgadora –, destacou que as duas turmas de direito público do tribunal entendem que a impenhorabilidade é mantida ainda que o devedor transfira o imóvel que lhe serve de moradia, porque esse imóvel seria imune, de toda forma, aos efeitos da execução.  "No caso dos autos, o tribunal a quo, em desconformidade com a orientação desta corte superior, afastou a proteção ao bem de família em razão de sua alienação após a citação do ora recorrente na ação executiva fiscal, motivo por que o recurso deve ser provido para restabelecer a sentença", concluiu o ministro.Leia o acórdão no AREsp 2.174.427.

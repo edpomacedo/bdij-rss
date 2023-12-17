@@ -1,8 +1,7 @@
 ---
 title: "STJ faz esforço concentrado para organizar pagamento de precatórios e alerta cidadãos para o risco de golpes"
 link: "https://www.stj.jus.br/sites/portalp/Paginas/Comunicacao/Noticias/2023/06112023-STJ-faz-esforco-concentrado-para-organizar-pagamento-de-precatorios-e-alerta-cidadaos-para-o-risco-de-golpes.aspx"
-description: "STJ se mobiliza para pagamento e
-recomenda cuidado com fraudes"
+description: "STJ faz esforço concentrado para organizar pagamento de precatórios e alerta cidadãos para o risco de golpes"
 pubdate: "Qua, dez 6 2023 07:55:00"
 ---
 

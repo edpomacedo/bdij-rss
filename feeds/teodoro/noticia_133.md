@@ -1,7 +1,7 @@
 ---
 title: "Teodoro Silva Santos, Afrânio Vilela e Daniela Teixeira tomam posse como ministros do STJ"
 link: "https://www.stj.jus.br/sites/portalp/Paginas/Comunicacao/Noticias/2023/22112023-Teodoro-Silva-Santos--Afranio-Vilela-e-Daniela-Teixeira-tomam-posse-como-ministros-do-STJ.aspx"
-description: "Teodoro Silva Santos, Afrânio Vilela e Daniela Teixeira foram empossados como novos membros da corte em sessão solene realizada na tarde desta quarta-feira (22)."
+description: "Teodoro Silva Santos, Afrânio Vilela e Daniela Teixeira tomam posse como ministros do STJ"
 pubdate: "Qua, nov 22 2023 19:10:00"
 ---
 
