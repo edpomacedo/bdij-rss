@@ -1,0 +1,10 @@
+---
+title: "STJ No Seu Dia fala sobre cidadania ambiental"
+link: "https://www.stj.jus.br/sites/portalp/Paginas/Comunicacao/Noticias/2023/08122023-STJ-No-Seu-Dia-fala-sobre-cidadania-ambiental.aspx"
+description: "STJ No Seu Dia fala sobre cidadania ambiental"
+pubdate: "Sex, dez 8 2023 07:50:00"
+---
+
+## Conteúdo
+
+​O mais novo episódio do podcast STJ No Seu Dia traz o tema cidadania ambiental. No bate-papo com os jornalistas Fátima Uchôa e Thiago Gomide, a redatora do portal de notícias do Superior Tribunal de Justiça (STJ) Júlia Azambuja conta detalhes de uma reportagem especial que escreveu sobre o assunto.Júlia aponta que, diante dos eventos climáticos extremos vividos em 2023 e de previsões de impactos ainda mais intensos em 2024, a preservação do meio ambiente se firmou entre as maiores preocupações mundiais, convidando cada um a refletir sobre a própria responsabilidade nesse tema. Segundo ela, "a proteção do meio ambiente é uma das faces do exercício da cidadania. O cumprimento dos deveres individuais e coletivos em favor do desenvolvimento sustentável, fruto da consciência sobre o direito desta e das futuras gerações a um ambiente saudável e equilibrado, tem nome: cidadania ambiental".A redatora lembra que, com a promulgação da Constituição Federal de 1988, o meio ambiente ecologicamente equilibrado foi erguido ao patamar de um verdadeiro direito fundamental."Na esteira das diretrizes constitucionais, surgiram diversas leis que disciplinam temas sobre o meio ambiente, como a Lei de Crimes Ambientais (Lei 9.605/1998), a Política Nacional de Recursos Hídricos (Lei 9.433/1997) e o Código Florestal Brasileiro (Lei 12.651/2012)", acrescenta.STJ No Seu DiaO podcast traz, semanalmente, um bate-papo com o redator de uma reportagem especial sobre a jurisprudência da corte. As matérias são publicadas todo domingo no site do STJ, abordando questões institucionais ou jurisprudenciais. Produzido pela Coordenadoria de TV e Rádio do tribunal, STJ No Seu Dia é veiculado às sextas-feiras, das 14h30 às 14h45, na Rádio Justiça (104,7 FM – Brasília). Também está disponível no Spotify e nas principais plataformas de áudio.

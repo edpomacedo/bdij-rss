@@ -1,0 +1,10 @@
+---
+title: "STJ entra no ranking geral do Spotify e se destaca na classificação em notícias"
+link: "https://www.stj.jus.br/sites/portalp/Paginas/Comunicacao/Noticias/2023/30112023-STJ-entra-no-ranking-geral-do-Spotify-e-se-destaca-na-classificacao-em-noticias.aspx"
+description: "STJ entra no ranking geral do Spotify e se destaca na classificação em notícias"
+pubdate: "Qui, nov 30 2023 16:57:00"
+---
+
+## Conteúdo
+
+O Superior Tribunal de Justiça (STJ) alcançou um marco notável ao entrar no ranking geral do Spotify, ocupando a 180ª posição entre os conteúdos mais ouvidos na plataforma de áudio. Desde agosto deste ano, o canal do STJ tem sido um frequente destaque no ranking da categoria de notícias, no qual atualmente ocupa a 12ª posição.O Spotify classifica diariamente os 200 principais canais de cada país, com base no número de ouvintes únicos recentes e no número geral de seguidores. Além disso, os rankings por categoria listam os 50 canais mais ouvidos em cada uma delas.O STJ, que entrou na plataforma em outubro de 2019, tem como objetivo fornecer informações e promover debates sobre diversos aspectos do direito que impactam a vida dos cidadãos. Com mais de 13 mil inscritos e 300 mil reproduções, o canal do STJ tem uma programação intensa e diversificada.Entre os programas disponíveis, o podcast semanal STJ No Seu Dia traz redatores do portal de notícias do tribunal para discutir temas específicos que foram objeto de matérias especiais. Rádio Decidendi é um podcast semanal com entrevistas e debates sobre temas definidos nos recursos repetitivos e outras questões relacionadas ao sistema de precedentes. Já o programa quinzenal Entender Direito aborda discussões relevantes nos meios jurídico e acadêmico, com a participação de juristas e profissionais do direito debatendo cada tema à luz da legislação e da jurisprudência do STJ.Como acessarPara acessar os podcasts do STJ, abra o Spotify, vá em "buscar", digite "Superior Tribunal de Justiça" e clique em "seguir". Também é possível ouvir apenas um episódio em streaming ou fazer download para ouvir offline. Se preferir, clique aqui para ir direto à página do STJ no Spotify.

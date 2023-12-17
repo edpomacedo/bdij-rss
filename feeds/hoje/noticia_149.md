@@ -1,0 +1,10 @@
+---
+title: "Hoje no STJ: Espaço Cultural sedia lançamento de livro sobre política de defesa da concorrência"
+link: "https://www.stj.jus.br/sites/portalp/Paginas/Comunicacao/Noticias/2023/21112023-Hoje-no-STJ-Espaco-Cultural-sedia-lancamento-de-livro-sobre-politica-de-defesa-da-concorrencia-.aspx"
+description: "Hoje no STJ: Espaço Cultural sedia lançamento de livro sobre política de defesa da concorrência"
+pubdate: "Ter, nov 21 2023 08:10:00"
+---
+
+## Conteúdo
+
+​O Espaço Cultural STJ realiza, nesta terça-feira (21), das 18h30 às 21h, o lançamento do livro Política de Defesa da Concorrência – Dos Fundamentos Teóricos à Implementação, de autoria de Vinícius Marques de Carvalho. O evento ocorrerá na sede do Superior Tribunal de Justiça (STJ), no mezanino do Edifício dos Plenários.Com prefácio do ministro Ricardo Villas Bôas Cueva, o livro explora a evolução da política de defesa da concorrência, desde seus primórdios até a cristalização, nos últimos quarenta anos, da hegemonia da Escola de Chicago, que acabou por transformar a política antitruste em um "jogo de contas de vidro", marcado por uma agenda tecnocrática, em prejuízo do combate aos monopólios e ao abuso do poder econômico, que é indissociável do movimento que levou à criação do antitruste. Ao longo do texto, Vinícius de Carvalho indica as mudanças conjunturais e estruturais que estão reacendendo o debate acerca da necessidade de reavaliação do paradigma da Escola de Chicago e de reaproximação do antitruste às suas raízes na economia política. Os fatores conjunturais incluem o abrandamento da globalização e o ressurgimento de preocupações geopolíticas e econômicas, enquanto, entre os fatores estruturais, podem ser elencados o crescimento da economia digital, o debate sobre transição energética e o aumento da desigualdade de renda. Os profissionais de imprensa interessados em cobrir o evento devem se credenciar previamente, enviando nome, CPF e identificação do veículo para imprensa@stj.jus.br. Informações adicionais sobre o lançamento podem ser obtidas na Secretaria de Documentação do STJ, nos telefones (61) 3319-8521 / 8169 / 8460. 

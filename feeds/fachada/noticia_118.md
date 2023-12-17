@@ -1,0 +1,10 @@
+---
+title: "Com fachada iluminada de laranja, tribunal adere à campanha pelo fim da violência contra a mulher"
+link: "https://www.stj.jus.br/sites/portalp/Paginas/Comunicacao/Noticias/2023/24112023-Com-fachada-iluminada-de-laranja--tribunal-adere-a-campanha-pelo-fim-da-violencia-contra-a-mulher.aspx"
+description: "Com fachada iluminada de laranja, tribunal adere à campanha pelo fim da violência contra a mulher"
+pubdate: "Sex, nov 24 2023 19:45:00"
+---
+
+## Conteúdo
+
+Em adesão à campanha 21 Dias de Ativismo pelo Fim da Violência contra a Mulher, promovida pelo Conselho Nacional de Justiça (CNJ), o Superior Tribunal de Justiça (STJ) adotou a iluminação laranja em sua fachada. A iniciativa – que acontece entre os dias 20 de novembro e 10 de dezembro – faz parte de uma série de ações que buscam combater todos os tipos de preconceito, discriminação e violência contra mulheres e meninas no Brasil.​​​​​​​​​A luz laranja na fachada do tribunal alerta para a necessidade de se combater todo tipo de preconceito e violência contra mulheres e meninas. | Foto: Sergio Amaral/STJ ​Todos os anos, o STJ integra a campanha por meio de atividades internas e externas de conscientização sobre os diversos cenários da violência de gênero.No mesmo período da campanha 21 Dias de Ativismo pelo Fim da Violência contra a Mulher, o CNJ também divulga a campanha Cartoons contra a Violência, desenvolvida em conjunto com o Supremo Tribunal Federal (STF). Nessa iniciativa, o objetivo é trazer o mesmo problema social para o centro do debate público, por meio do trabalho de talentosas cartunistas e do apoio de diversos veículos de comunicação.Sobre a campanhaO movimento criado pelo CNJ, que busca sensibilizar a sociedade a respeito da violência contra mulheres e meninas, sobretudo no Poder Judiciário, se inspira na ação mundial denominada 16 Dias de Ativismo pelo Fim da Violência contra as Mulheres. Iniciada em 1991, essa campanha homenageia as irmãs Pátria, Minerva e Maria Teresa, torturadas e assassinadas, em 1960, na República Dominicana.

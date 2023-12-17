@@ -1,0 +1,10 @@
+---
+title: "Encontro nacional começa a discutir estratégias do Judiciário para 2024 e lança pacto por linguagem simples"
+link: "https://www.stj.jus.br/sites/portalp/Paginas/Comunicacao/Noticias/2023/04122023-17o-Encontro-Nacional-do-Poder-Judiciario-comeca-a-discutir-estrategias-para-2024.aspx"
+description: "Encontro nacional começa a discutir estratégias do Judiciário para 2024 e lança pacto por linguagem simples"
+pubdate: "Seg, dez 4 2023 21:25:00"
+---
+
+## Conteúdo
+
+Representantes de órgãos da Justiça de todo o\r\npaís participam do 17º Encontro Nacional do Poder Judiciário, que ocorre nesta\r\nsegunda (4) e na terça-feira (5) em Salvador. O evento discute os caminhos para\r\na elaboração da Estratégia Nacional do Poder Judiciário para 2024. Na abertura\r\ndo encontro, foi lançado o Pacto Nacional do Judiciário pela Linguagem Simples.​​​​​​​​​Mesa da sessão de abertura do encontro iniciado nesta segunda-feira, em Salvador.​Ao saudar os dirigentes dos 90 tribunais presentes à abertura, o presidente do Supremo Tribunal Federal (STF) e do Conselho Nacional de Justiça (CNJ), ministro Luís Roberto Barroso, conclamou-os a apresentarem suas demandas para a construção coletiva das metas do Poder Judiciário. "Desejo que seja um momento de partilha de ideias e de confraternização. Estamos aqui para pensarmos as melhores soluções para o Judiciário brasileiro", afirmou Barroso.A presidente do Superior Tribunal de Justiça (STJ), ministra Maria Thereza de Assis Moura, também participou da abertura do encontro. Estiveram presentes, ainda, entre muitas outras autoridades, o vice-presidente do STF, ministro Edson Fachin; o presidente do Tribunal Superior do Trabalho (TST), ministro Lelio Bentes Corrêa; o presidente do Superior Tribunal Militar (STM), ministro Joseli Parente Camelo; e o ministro do STJ Luis Felipe Salomão, corregedor nacional de Justiça.Promovido pelo CNJ, o evento conta com o apoio do Tribunal de Justiça da Bahia (TJBA), do governo do estado e da prefeitura de Salvador.Confira a programação completa.

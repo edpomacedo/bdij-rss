@@ -1,0 +1,10 @@
+---
+title: "III Congresso IEDF – Direito e Fraternidade acontece nesta quinta (23) com transmissão ao vivo"
+link: "https://www.stj.jus.br/sites/portalp/Paginas/Comunicacao/Noticias/2023/23112023-III-Congresso-IEDF-–-Direito-e-Fraternidade-acontece-nesta-quinta--23--com-transmissao-ao-vivo.aspx"
+description: "III Congresso IEDF – Direito e Fraternidade acontece nesta quinta (23) com transmissão ao vivo"
+pubdate: "Qui, nov 23 2023 07:00:00"
+---
+
+## Conteúdo
+
+​O canal do Superior Tribunal de Justiça (STJ) no YouTube transmite ao vivo, nesta quinta-feira (23), a partir das 18h, o  \r\n   III Congresso IEDF – Direito e Fraternidade e VIII Seminário do Grupo Comunhão e Direito do Centro-Oeste.  \r\n   O evento ocorrerá no auditório externo do STJ.As inscrições podem ser feitas pelo \r\n    \r\n      portal do IEDF. Ao se inscrever para o evento, os interessados podem contribuir com uma campanha \r\n   on-line de arrecadação de brinquedos, que serão distribuídos em dezembro para crianças de comunidades carentes do Distrito Federal.Clique na imagem para assistir ao vivo:\r\n    \r\n\r\nA programação do evento contará com a participação dos ministros do STJ Reynaldo Soares da Fonseca e Ribeiro Dantas – que também são coordenadores científicos do evento – e do ministro do Supremo Tribunal Federal (STF) André Mendonça, além de outros especialistas, profissionais da área jurídica e representantes da sociedade civil.Nos painéis, serão debatidos temas como a relação entre políticas públicas, direitos fundamentais e fraternidade; os caminhos e desafios sob a perspectiva do constitucionalismo fraterno; e as experiências concretas sobre a educação inclusiva no estado fraterno de direito.Durante o evento, ocorrerá ainda o lançamento do livro "As políticas públicas no direito constitucional fraterno: estudos em homenagem à Ministra Laurita Vaz", um tributo à ministra aposentada Laurita Vaz, primeira mulher a presidir o Tribunal da Cidadania. A obra é coordenada pelos ministros Reynaldo Soares da Fonseca e Ribeiro Dantas, organizada por Rafaela Silva Brito, Sandra Taya e Fábio Francisco Esteves.Confira a \r\n    \r\n      programação completa.

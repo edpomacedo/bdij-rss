@@ -1,0 +1,10 @@
+---
+title: "Espaço Cultural STJ sedia lançamento de livro sobre seguridade social nesta segunda-feira (20)"
+link: "https://www.stj.jus.br/sites/portalp/Paginas/Comunicacao/Noticias/2023/20112023-Espaco-Cultural-STJ-sedia-lancamento-de-livro-sobre-seguridade-social-nesta-segunda-feira--20-.aspx"
+description: "Espaço Cultural STJ sedia lançamento de livro sobre seguridade social nesta segunda-feira (20)"
+pubdate: "Seg, nov 20 2023 09:00:00"
+---
+
+## Conteúdo
+
+​O Espaço Cultural STJ realiza, nesta segunda-feira (20), das 18h30 às 21h, o lançamento do livro "A (in)seguridade social no Brasil – desafios para uma seguridade 4.0", de autoria de Thais Maria Riedel de Resende Zuba e prefácio de João Paulo Bachur. O evento vai acontecer na sede do Superior Tribunal de Justiça (STJ), no mezanino do Edifício dos Plenários (segundo andar).Com apresentação da ministra do STJ Assusete Magalhães, a obra aborda a evolução histórica e legislativa dos riscos sociais protegidos pela seguridade social e traz novas reflexões sobre as matérias que devem ser objeto de proteção.Segundo a ministra, o livro parte de uma visão constitucional e do conceito de estado do bem-estar social para identificar a progressiva desconfiguração da seguridade social por reformas decorrentes de uma percepção neoliberal e amparadas na alegada necessidade de ajuste fiscal.Nesse contexto, a autora reforça que é preciso repensar os modelos tributário, trabalhista e previdenciário, a fim de readequá-los às novas realidades contemporâneas e tecnológicas. Ela ainda propõe o aprimoramento do estado social para um estado previdente, com a construção de uma seguridade social 4.0, capaz de proteger a população na era digital.Informações adicionais sobre o lançamento podem ser obtidas na Secretaria de Documentação do STJ, nos telefones (61) 3319-8521 / 8169 / 8460.Os profissionais de imprensa interessados em cobrir o evento devem se credenciar previamente, enviando nome, CPF e identificação do veículo para imprensa@stj.jus.br.

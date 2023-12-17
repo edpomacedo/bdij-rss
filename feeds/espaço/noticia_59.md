@@ -1,0 +1,10 @@
+---
+title: "Espaço Cultural lança livro sobre superendividamento dos consumidores nesta terça-feira (5)"
+link: "https://www.stj.jus.br/sites/portalp/Paginas/Comunicacao/Noticias/2023/05122023-Espaco-Cultural-lanca-livro-sobre-superendividamento-dos-consumidores-nesta-terca-feira--5-.aspx"
+description: "Espaço Cultural lança livro sobre superendividamento dos consumidores nesta terça-feira (5)"
+pubdate: "Ter, dez 5 2023 08:20:00"
+---
+
+## Conteúdo
+
+​O Espaço Cultural STJ sedia, nesta terça-feira (5), das 18h30 às 21h, o lançamento do livro Superendividamento dos Consumidores – Aspectos materiais e processuais. O evento acontecerá na sede do Superior Tribunal de Justiça (STJ), no mezanino do Edifício dos Plenários (segundo andar).O livro possui prefácio do ministro do STJ Marco Buzzi, que também coordena o lançamento da obra juntamente com a professora Claudia Lima Marques, a juíza Trícia Navarro Xavier Cabral e a advogada Juliana Loss de Andrade. A obra tem 70 autores e busca registrar e reunir as valiosas contribuições obtidas ante renomados operadores do direito, especializados no tema da defesa do consumidor. Em seu prefácio, o ministro elogia o conteúdo do livro pela produção científica presente, que defende aspectos, por exemplo, referentes à segurança jurídica. "Houve preocupação de uniformizar pontos de vista e entendimentos esboçados pelos diversos conteudistas, ante os quais é merecido e indispensável depositar elogiosas referências, tanto em razão da produção científica, quanto por, em outras ocasiões, proporem arrojadas metas cujo propósito maior, então, tem a ver com a busca, quase utópica, da concretude do direito e do seu efetivo parâmetro prestacional, fins tão almejados pela sociedade atual", destacou o ministro do STJ. Os profissionais de imprensa interessados em cobrir o evento devem se credenciar previamente, enviando nome, CPF e identificação do veículo para imprensa@stj.jus.br.Informações adicionais sobre o lançamento podem ser obtidas na Secretaria de Documentação do STJ, nos telefones (61) 3319-8521 / 8169 / 8460. 

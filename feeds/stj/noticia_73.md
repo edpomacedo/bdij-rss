@@ -1,0 +1,10 @@
+---
+title: "STJ No Seu Dia desta semana fala sobre o princípio da fungibilidade recursal"
+link: "https://www.stj.jus.br/sites/portalp/Paginas/Comunicacao/Noticias/2023/01122023-STJ-No-Seu-Dia-desta-semana-fala-sobre-o-principio-da-fungibilidade-recursal.aspx"
+description: "STJ No Seu Dia desta semana fala sobre o princípio da fungibilidade recursal"
+pubdate: "Sex, dez 1 2023 10:10:00"
+---
+
+## Conteúdo
+
+​Está no ar mais um episódio inédito do podcast STJ No Seu Dia. Desta vez, a convidada é a redatora do portal de notícias do Superior Tribunal de Justiça (STJ) Camila Costa, e o tema do bate-papo com os jornalistas Fátima Uchôa e Thiago Gomide é o princípio da fungibilidade.Camila lembra que o processo judicial é regulado por normas expressas e vinculantes que são especialmente relevantes no campo recursal, que se rege pelos princípios da taxatividade e da singularidade. Ela conta que, a partir desses princípios, são estabelecidos com precisão os únicos meios adequados de submissão das decisões à revisão do Poder Judiciário. "No entanto, em situações excepcionais, é possível aplicar a chamada fungibilidade recursal, que consiste em admitir a interposição de um recurso impróprio como se fosse o adequado para a impugnação daquela espécie de decisão judicial", explicou.A redatora observa que, nos diversos casos em que analisou essa possibilidade, o STJ consolidou uma jurisprudência que condiciona a aplicação do princípio da fungibilidade ao preenchimento de uma série de requisitos: "O primeiro é a dúvida objetiva quanto ao recurso a ser interposto, depois a inexistência de erro grosseiro na escolha da peça recursal e, por fim, a observância do prazo do recurso cabível".STJ No Seu DiaO podcast traz, semanalmente, um bate-papo com o redator de uma reportagem especial sobre a jurisprudência da corte. As matérias são publicadas todo domingo no site do STJ, abordando questões institucionais ou jurisprudenciais. Produzido pela Coordenadoria de TV e Rádio do tribunal, STJ No Seu Dia é veiculado às sextas-feiras, das 14h30 às 14h45, na Rádio Justiça (104,7 FM – Brasília). Também está disponível no Spotify e nas principais plataformas de áudio.

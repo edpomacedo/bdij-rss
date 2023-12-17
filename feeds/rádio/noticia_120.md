@@ -1,0 +1,10 @@
+---
+title: "Rádio Decidendi: ministro Marco Aurélio Bellizze fala sobre filtro da relevância e sobrecarga do STJ"
+link: "https://www.stj.jus.br/sites/portalp/Paginas/Comunicacao/Noticias/2023/24112023-Radio-Decidendi-ministro-Marco-Aurelio-Bellizze-fala-sobre-filtro-da-relevancia-e-sobrecarga-do-STJ-.aspx"
+description: "Rádio Decidendi: ministro Marco Aurélio Bellizze fala sobre filtro da relevância e sobrecarga do STJ"
+pubdate: "Sex, nov 24 2023 08:50:00"
+---
+
+## Conteúdo
+
+​O novo episódio do podcast Rádio Decidendi já está no ar e traz uma palestra do ministro do Superior Tribunal de Justiça (STJ) Marco Aurélio Bellizze sobre a relevância da questão federal e o novo recurso especial. Bellizze destacou o papel dos precedentes na resolução da grande quantidade de processos que tramitam no tribunal: "Hoje, se reduzirmos a 75% a quantidade de processos no Superior Tribunal de Justiça, ainda teremos que trabalhar muito para dar conta de julgar todos. Se a redução for menor que essa, não daremos conta. Quanto maior o órgão julgador, mais difícil a sistemática. Lembro-me aqui do ministro Sanseverino e, onde ele estiver, rogo que inspire a todos nós para que possamos concretizar esse sistema de precedentes". A explanação foi feita durante o I Congresso Sistema Brasileiro de Precedentes, evento promovido pelo STJ em parceria com a Escola Nacional de Formação e Aperfeiçoamento de Magistrados (Enfam).  Podcast Rádio Decidendi é produzido pela Coordenadoria de TV e Rádio do STJ, em parceria com o Núcleo de Gerenciamento de Precedentes e de Ações Coletivas (Nugepnac) do tribunal. Com periodicidade semanal, o podcast traz entrevistas e debates sobre temas definidos à luz dos recursos repetitivos e outras questões relacionadas ao sistema de precedentes. O podcast pode ser conferido na programação da Rádio Justiça (104,7 FM – Brasília) às sextas-feiras, às 21h30; e aos sábados e domingos, às 10h30. O novo episódio está disponível nas principais plataformas de streaming de áudio, como o Spotify.

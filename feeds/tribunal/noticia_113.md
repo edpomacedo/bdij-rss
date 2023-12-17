@@ -1,0 +1,10 @@
+---
+title: "Tribunal passa a emitir Certidão Judicial de Distribuição de forma automática pelo site"
+link: "https://www.stj.jus.br/sites/portalp/Paginas/Comunicacao/Noticias/2023/27112023-Tribunal-passa-a-emitir-Certidao-Judicial-de-Distribuicao-de-forma-automatica-pelo-site.aspx"
+description: "Tribunal passa a emitir Certidão Judicial de Distribuição de forma automática pelo site"
+pubdate: "Seg, nov 27 2023 08:00:00"
+---
+
+## Conteúdo
+
+​Já é possível emitir de forma automática, pelo site do Superior Tribunal de Justiça (STJ), a Certidão Judicial de Distribuição. Para tanto, basta preencher o formulário eletrônico e indicar o CPF ou o CNPJ da pessoa física ou jurídica sobre a qual se requer a busca. O novo serviço segue as determinações da Instrução Normativa STJ/GP 41/2023.A Certidão Judicial de Distribuição é o documento que atesta a existência ou não de processos em nome de determinada pessoa física ou jurídica, no âmbito do STJ.Até agora, o serviço era realizado manualmente pela equipe da Secretaria Judiciária do tribunal. Entre janeiro e outubro deste ano, foram emitidas 49.750 certidões – uma média de aproximadamente cinco mil certidões por mês."O normativo marca um importante passo do STJ na modernização dos serviços prestados aos cidadãos que buscam obter certidões de seu interesse perante o tribunal. Doravante, na forma disciplinada na instrução normativa, as certidões de distribuição judicial poderão ser extraídas de modo inteiramente digital, por meio do portal do STJ, possibilitando a emissão de documentos de maneira ágil e eficiente", disse o titular da Secretaria Judiciária, Augusto Gentil.Emissão de certidões pelo site do STJ é gratuitaAtualmente, já são emitidas diretamente pelo site a Certidão de Andamento Processual, a de Atuação de Advogado e a Eleitoral. A expedição dessas certidões é isenta de taxas e emolumentos, ressalvadas as certidões narrativas (Certidões de Objeto e Pé).Se o formulário eletrônico estiver indisponível ou algum problema técnico impedir que a certidão seja gerada automaticamente, o pedido deverá ser encaminhado pelo canal de atendimento judicial do STJ: informa.processual@stj.jus.br.

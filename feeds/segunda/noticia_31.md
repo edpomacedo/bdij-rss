@@ -1,0 +1,10 @@
+---
+title: "Segunda Turma presta homenagens a Assusete Magalhães em sua última sessão no colegiado"
+link: "https://www.stj.jus.br/sites/portalp/Paginas/Comunicacao/Noticias/2023/12122023-Segunda-Turma-presta-homenagens-a-Assusete-Magalhaes-em-sua-ultima-sessao-no-colegiado.aspx"
+description: "Segunda Turma presta homenagens a Assusete Magalhães em sua última sessão no colegiado"
+pubdate: "Ter, dez 12 2023 19:08:00"
+---
+
+## Conteúdo
+
+Sob aplausos e elogios diversos, a ministra Assusete Magalhães participou de sua última sessão na Segunda Turma do Superior Tribunal de Justiça (STJ), na tarde desta terça-feira (12). A ministra deve se aposentar em 15 de janeiro, três dias antes de completar 75 anos, idade limite para o exercício do cargo. ​​​​​​​​​Ministra Assusete Magalhães em sua última sessão na Segunda Turma. | Foto: Lucas Pricken/STJ​A sessão teve a participação da presidente do STJ, ministra Maria Thereza de Assis Moura, e do vice-presidente, ministro Og Fernandes. Ambos ressaltaram que Assusete Magalhães engrandeceu o tribunal com seu saber e seu jeito de ser."É uma honra para o tribunal que tenhamos tido alguém com a capacidade de Vossa Excelência. Desejo muito sucesso nessa nova etapa", afirmou a presidente. "Saiba que esta casa não esquecerá de Vossa Excelência. Sua presença estará aqui conosco pelo que representa para a magistratura brasileira", declarou Og Fernandes. Após a apresentação de um vídeo sobre a trajetória de Assusete Magalhães, os ministros Herman Benjamin, Mauro Campbell Marques e Afrânio Vilela elogiaram a colega por suas qualidades profissionais, intelectuais e pessoais. Pela advocacia e pelo Ministério Público, respectivamente, falaram Marcus Vinicius Furtado Coêlho e Samantha Chantal.Assusete Magalhães agradeceu a ministros e servidores pela convivência na corte. "Há 11 anos cheguei, honrada, ao STJ. Agradeço aos ministros desta turma pelos nove anos de convívio fraterno, pelas lições de vida aqui colhidas e pela amizade. Deixo a todos, e a cada um, um forte abraço e o meu obrigada".Na manhã desta quarta-feira (13), Assusete Magalhães também vai se despedir da Primeira Seção do tribunal.

@@ -1,0 +1,10 @@
+---
+title: "Audiência pública sobre revisão do Código Civil começa às 9h, com transmissão ao vivo"
+link: "https://www.stj.jus.br/sites/portalp/Paginas/Comunicacao/Noticias/2023/20112023-Audiencia-publica-sobre-revisao-do-Codigo-Civil-comeca-as-9h--com-transmissao-ao-vivo.aspx"
+description: "Audiência pública sobre revisão do Código Civil começa às 9h, com transmissão ao vivo"
+pubdate: "Seg, nov 20 2023 08:10:00"
+---
+
+## Conteúdo
+
+​A segunda audiência pública da comissão de juristas responsável pela atualização do Código Civil vai começar às 9h desta segunda-feira (20), com transmissão ao vivo pelo canal do Senado no YouTube.No período da manhã, diversos especialistas vão debater o tema na Universidade Federal do Rio Grande do Sul (UFRGS), em Porto Alegre. A partir das 14h, o debate continua no Tribunal de Justiça do Rio Grande do Sul (TJRS), também localizado na capital gaúcha.Presidida pelo ministro Luis Felipe Salomão, a comissão de 31 membros conta com a participação da ministra Isabel Gallotti e dos ministros João Otávio de Noronha, Marco Buzzi e Marco Aurélio Bellizze (vice-presidente da comissão), todos do Superior Tribunal de Justiça (STJ), além do ministro aposentado Cesar Asfor Rocha, que presidiu a corte no biênio 2008-2010. Como relatores, foram designados a desembargadora aposentada Rosa Maria de Andrade Nery e o jurista Flávio Tartuce, ambos professores de direito civil.A comissão reúne representantes da magistratura, da advocacia, do Ministério Público e da academia, que se dividirão em grupos responsáveis pela análise das diferentes partes do Código Civil.Comissão terá mais uma audiência em dezembro Para expandir os debates e levantar mais informações, a comissão ainda vai realizar mais uma audiência pública no dia 7 de dezembro, às 14h, em Salvador, no auditório do Tribunal de Justiça da Bahia (TJBA).Na página da comissão no portal do Senado, o público pode obter informações sobre audiências públicas, pautas das reuniões futuras, reuniões já realizadas (com notas taquigráficas, vídeos e atas), plano de trabalho, regulamento e outros documentos.

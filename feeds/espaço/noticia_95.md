@@ -1,0 +1,10 @@
+---
+title: "Espaço Cultural sedia lançamento de livros sobre direito de família nesta quarta-feira (29)"
+link: "https://www.stj.jus.br/sites/portalp/Paginas/Comunicacao/Noticias/2023/29112023-Espaco-Cultural-sedia-lancamento-de-livros-sobre-direito-de-familia-nesta-quarta-feira--29-.aspx"
+description: "Espaço Cultural sedia lançamento de livros sobre direito de família nesta quarta-feira (29)"
+pubdate: "Qua, nov 29 2023 08:50:00"
+---
+
+## Conteúdo
+
+​O Espaço Cultural STJ recebe, nesta quarta-feira (29), das 18h30 às 21h, o lançamento de dois volumes da coletânea Direito de Família Conforme Interpretação do STJ: o terceiro volume, Alimentos: aspectos materiais, e o quarto volume, Alimentos: aspectos processuais. O evento acontecerá na sede do Superior Tribunal de Justiça (STJ), no mezanino do Edifício dos Plenários (segundo andar).O terceiro volume possui prefácio do ministro do STJ Antonio Carlos Ferreira, enquanto o quarto foi prefaciado pelo ministro Raul Araújo, também do STJ. Além disso, o lançamento teve como organizadores o desembargador aposentado do TJRS Rui Portanova; o juiz de direito do TJES Rafael Calmon; e o assessor de ministro do STJ Gustavo D'Alessandro.Ambas as obras reúnem dezenas de artigos redigidos por professores e pesquisadores provenientes de diversas regiões do Brasil, voltados exclusivamente à análise de como questões controversas e contemporâneas sobre o tema "alimentos" vêm sendo enfrentadas pelo Superior Tribunal de Justiça.Os novos volumes seguem a tendência dos anteriores, em que os autores trazem diversos entendimentos e provocações sobre a interpretação do ordenamento jurídico, sem receio de emitir os seus posicionamentos, prometendo ser ferramenta essencial para advogados, membros do Ministério Público, magistrados, estudantes de direito e todos os interessados no campo do direito das famílias.Informações adicionais sobre o lançamento podem ser obtidas na Secretaria de Documentação do STJ, nos telefones (61) 3319-8521 / 8169 / 8460.Os profissionais de imprensa interessados em cobrir o evento devem se credenciar previamente, enviando nome, CPF e identificação do veículo para imprensa@stj.jus.br.
